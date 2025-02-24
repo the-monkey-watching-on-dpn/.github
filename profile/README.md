@@ -10,7 +10,7 @@
 
 <h2><a href="https://t.co/OniP2WTdU5">➤ ►🌍📺📱👉 W𝚊tch The Monkey (2025) F𝚞ll Mo𝚟ie Downl𝚘ad</a></h2>
 
-[!watch_full_movie](https://media.themoviedb.org/t/p/w220_and_h330_face/2i3KrQdUAbMgSQAnSqeienj04mQ.jpg)
+[![watch_full_movie](https://media.themoviedb.org/t/p/w220_and_h330_face/2i3KrQdUAbMgSQAnSqeienj04mQ.jpg)
 
 Wondering how to W𝚊tch  The Monkey  𝙾nl𝚒ne? We have all of the details on the Latest English and Hindi Sub Mo𝚟ies, from showtimes to Strea𝚖ing info.
 
